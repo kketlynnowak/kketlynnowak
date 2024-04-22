@@ -1,0 +1,6 @@
+-oi eu sou a kety 💋
+-tenho 15 anos 🙀
+-sou trikas 🇾🇪
+-apaixonada pelo calleri 😻
+-ela/dele 😏
+-👻
